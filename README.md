@@ -1,1 +1,1 @@
-# Fat2Fit-Fintens
+# Fat2Fit-Fitness
